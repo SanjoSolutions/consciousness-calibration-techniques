@@ -11,7 +11,7 @@ How does one devote the calibration to God? This seems to be usually done via in
 
 How does one ask if one has permission? This is done via a consciousness calibration. Once again via intention (willingsness).
 
-How is a consciousness calibration for asking for permission done? Operational one states "I have permission to do \_\_\_\_." where "\_\_\_\_" is replaced with a formulation of what you intent to calibrate.
+How is a consciousness calibration for asking for permission done? Operational one states "I have permission to do \_\_\_\_." where "\_\_\_\_" is replaced with a formulation of what you intend to calibrate. Alternatively one can also state: "It serves the highest good to \_\_\_\_." where "\_\_\_\_" is replaced with a formulation of what you intend to calibrate.
 Then there are multiple ways to verify that this statement calibrates as true. One is via muscle strength. There are also multiple techniques to do it via muscle strength.
 One is the O-ring method. With one hand one forms an O-configuration with two fingers by connecting them (i.e. thumb and pointing finger). Then when one calibrates the statement via intention and via indication by muscle strength, 
 one tries to pull apart the O-configuration with one finger of the other hand.
