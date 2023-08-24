@@ -7,7 +7,7 @@ What are consciousness calibration techniques? Consciousness calibration techniq
 How does one do a consciousness calibration technique? The steps are as follows: For maximum accuracy one devotes the calibration to God. 
 Then one asks if one has permission. If one has permission one can calibrate things which one has verified that one has permission for.
 
-How does one devote the calibration to God? This seems to be usually done via intention (willingness) or by consent (when the option presents itself).
+How does one devote the calibration to God? This seems to be usually done via intention (willingness) or by consent (when the option presents itself). One can state the intention to serve the highest good in the form of "In the name of the highest good, ...".
 
 How does one ask if one has permission? This is done via a consciousness calibration. Once again via intention (willingsness).
 
