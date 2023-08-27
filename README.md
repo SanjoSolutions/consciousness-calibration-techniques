@@ -51,7 +51,10 @@ Here is the reference scale that has been used by David R. Hawkins:
 A consciousness level of content can then be calibrated to a precision of choice if one has permission. The sequence of statements could be as follows:
 
 1. "In the name of the highest good, it serves the highest good to calibrate the consciousness level of \_\_\_\_."
-2. If it serves the highest good: "In the name of the highest good, \_\_\_\_ calibrates at or above 200."
+
+If it serves the highest good:
+
+2. "In the name of the highest good, \_\_\_\_ calibrates at or above 200."
 3. "At or above 300."
 4. "At or above 400."
 5. ...
