@@ -1,6 +1,6 @@
 # Consciousness calibration techniques
 
-In this section I try to give the information, which seem very helpful to successfully do consciousness calibration techniques, in a concise format.
+In this section I try to share the information, which seems very helpful to successfully do consciousness calibration techniques, in a concise format.
 
 What are consciousness calibration techniques? Consciousness calibration techniques are techniques with which consciousness levels of content can be calibrated.
 
