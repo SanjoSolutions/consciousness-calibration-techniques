@@ -22,3 +22,39 @@ If you start with it, you can first find out if it works for you at the time. A 
 Then you can see if you receive the same answers with the practiced consciousness calibration technique.
 
 What does one do with the results? The results can inform choices.
+
+## Consciousness level calibration
+
+With consciousness level calibration one can calibrate the potency of power of content more precisely. In the previous section, true translates to a consciousness level at or above 200 (>= 200), and false translates to below 200. To arrive at those numbers it seems required to reference a scale.
+Here is the reference scale that has been used by David R. Hawkins:
+
+| Name | Level or range |
+|------|----------------|
+| Enlightenment | 700 to 1000 |
+| Peace | 600 |
+| Joy | 540 |
+| Love | 500 |
+| Reason | 400 |
+| Acceptance | 350 |
+| Willingness | 310 |
+| Neutrality | 250 |
+| Courage | 200 |
+| Pride | 175 |
+| Anger | 150 |
+| Desire | 125 |
+| Fear | 100 |
+| Grief | 75 |
+| Apathy, hatred | 50 |
+| Guilt | 30 |
+| Shame | 20 |
+
+A consciousness level of content can then be calibrated to a precision of choice if one has permission. The sequence of statements could be as follows:
+
+1. "In the name of the highest good, it serves the highest good to calibrate the consciousness level of \_\_\_\_."
+2. If it serves the highest good: "In the name of the highest good, \_\_\_\_ calibrates at or above 200."
+3. "At or above 300."
+4. "At or above 400."
+5. ...
+
+Until one receives a false. I.e. if one have received a true for "At or above 400" and a false for "At or above 500" then it calibrates >= 400 and < 500.
+If chosen, one can make the range smaller by additional statements. I.e. "At or above 450".
