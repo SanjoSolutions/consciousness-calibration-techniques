@@ -56,5 +56,5 @@ A consciousness level of content can then be calibrated to a precision of choice
 4. "At or above 400."
 5. ...
 
-Until one receives a false. I.e. if one have received a true for "At or above 400" and a false for "At or above 500" then it calibrates >= 400 and < 500.
+Until one receives a false. I.e. if one has received a true for "At or above 400" and a false for "At or above 500" then it calibrates >= 400 and < 500.
 If chosen, one can make the range smaller by additional statements. I.e. "At or above 450".
