@@ -9,7 +9,7 @@ Then one asks if one has permission. If one has permission one can calibrate thi
 
 How does one devote the calibration to God? This seems to be usually done via intention (willingness) or by consent (when the option presents itself). One can state the intention to serve the highest good in the form of "In the name of the highest good, ...".
 
-How does one ask if one has permission? This is done via a consciousness calibration. Once again via intention (willingsness).
+How does one ask if one has permission? This is done via a consciousness calibration.
 
 How is a consciousness calibration for asking for permission done? Operational one states "I have permission to do \_\_\_\_." where "\_\_\_\_" is replaced with a formulation of what you intend to calibrate. Alternatively one can also state: "It serves the highest good to \_\_\_\_." where "\_\_\_\_" is replaced with a formulation of what you intend to calibrate.
 Then there are multiple ways to verify that this statement calibrates as true. One is via muscle strength. There are also multiple techniques to do it via muscle strength.
